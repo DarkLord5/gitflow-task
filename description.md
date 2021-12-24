@@ -1,3 +1,4 @@
+##**xiaomi redmi note 9s**
 ###description
 ####**The Xiaomi Redmi Note 9s is made of Corning Gorilla Glass 5, which is glued to a plastic frame. Only recently I wrote that usually expensive glass does not cling to plastic frames. And already when I published it, I realized that I was mistaken. Xiaomi has been practicing this for a long time. The Redmi 8 Pro also came with a CGG5 and a plastic frame. A great way to give buyers premium materials while saving on chassis manufacturing. There are no complaints about plastic. It is a beautiful, durable and durable material.The build of the smartphone is excellent. This is indirectly confirmed by the fact that the specifications indicate that the smartphone is splash-proof. This means that everything is assembled and glued conscientiously.**
 
