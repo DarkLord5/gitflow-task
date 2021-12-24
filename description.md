@@ -15,3 +15,9 @@
 -Weight: 209 g
 
 ![xiaomi redmi note 9s](https://img.5element.by/import/images/ut/goods/good_d9edfaa3-8079-11ea-80c8-005056840c70/good_img_8bd7510c-846d-11ea-80c8-005056840c70_600.jpg)
+
+###__Similar devices__
+-Xiaomi Redmi Note 8 Pro
+-Samsung Galaxy A51
+-Oppo A9
+-Xiaomi Mi 9T
